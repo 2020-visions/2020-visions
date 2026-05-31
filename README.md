@@ -29,7 +29,7 @@
 
 𝐒𝐡𝐢𝐩𝐬 𝐚𝐫𝐞 𝐨𝐤𝐚𝐲 𝐰𝐢𝐭𝐡 𝐦𝐞, 𝐢'𝐦 𝐚 𝐦𝐮𝐥𝐭𝐢𝐬𝐡𝐢𝐩𝐩𝐞𝐫! 
 
-𝐁𝐮𝐭 𝐢'𝐦 𝐧𝐨𝐭 𝐚 𝐟𝐚𝐧 𝐨𝐟 𝐝𝐨𝐮𝐛𝐥𝐞𝐟𝐞𝐝𝐨𝐫𝐚 𝐨𝐫 𝐛𝐥𝐮𝐮𝐤𝐢𝐝𝐝/𝐜𝐨𝐨𝐥𝐝𝐮𝐝, 𝐬𝐨𝐫𝐫𝐲.
+𝐁𝐮𝐭 𝐢'𝐦 𝐧𝐨𝐭 𝐚 𝐟𝐚𝐧 𝐨𝐟 𝐝𝐨𝐮𝐛𝐥𝐞𝐟𝐞𝐝𝐨𝐫𝐚 𝐨𝐫 𝐛𝐥𝐮𝐮𝐤𝐢𝐝𝐝/𝐜𝐨𝐨𝐥𝐝𝐮𝐝, 𝐬𝐨𝐫𝐫𝐲. (HOWEVERRRRR if you DO ship this, thats completely okay!! you can still sit with me, as for bluukidd/cooldud, i'm... not sure, so int with caution.)
 
 𝙸𝙽𝚃?
 
