@@ -26,7 +26,7 @@
   <img width="45" height="45" alt="image" src="https://github.com/user-attachments/assets/14b1f3c1-048e-458f-a0ab-30070c13a942" />
 
 𝐓𝐡𝐞 𝐊𝐢𝐧𝐠 𝐈𝐧 𝐘𝐞𝐥𝐥𝐨𝐰 𝐱 𝐃𝟑𝐫𝐥𝐨𝐫𝐝𝟑 𝐞𝐧𝐭𝐡𝐮𝐬𝐢𝐚𝐬𝐭.
-
+Fixated on the among us show, i love you lime
 𝐒𝐡𝐢𝐩𝐬 𝐚𝐫𝐞 𝐨𝐤𝐚𝐲 𝐰𝐢𝐭𝐡 𝐦𝐞, 𝐢'𝐦 𝐚 𝐦𝐮𝐥𝐭𝐢𝐬𝐡𝐢𝐩𝐩𝐞𝐫! 
 
 𝐁𝐮𝐭 𝐢'𝐦 𝐧𝐨𝐭 𝐚 𝐟𝐚𝐧 𝐨𝐟 𝐝𝐨𝐮𝐛𝐥𝐞𝐟𝐞𝐝𝐨𝐫𝐚 𝐨𝐫 𝐛𝐥𝐮𝐮𝐤𝐢𝐝𝐝/𝐜𝐨𝐨𝐥𝐝𝐮𝐝, 𝐬𝐨𝐫𝐫𝐲. (HOWEVERRRRR if you DO ship this, thats completely okay!! you can still sit with me, as for bluukidd/cooldud, i'm... not sure, so int with caution.)
