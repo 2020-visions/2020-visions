@@ -42,4 +42,5 @@ Fixated on the among us show, i love you lime
 𝐑𝐢𝐥𝐞𝐲
 + 𝐈𝐟 𝐲𝐨𝐮 𝐚𝐫𝐞 𝐦𝐲 𝐟𝐫𝐢𝐞𝐧𝐝, 𝐚𝐧𝐲𝐭𝐡𝐢𝐧𝐠 𝐰𝐨𝐫𝐤𝐬.
 <p align="center">
-<img width="636" height="359" alt="image" src="https://github.com/user-attachments/assets/0992942c-6292-4e19-aaa6-c2b2dfbbd2c3" />
+<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/de027f41-e35a-44b7-8c73-e03bf9da4508" />
+
