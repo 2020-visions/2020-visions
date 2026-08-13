@@ -10,7 +10,7 @@
 
 𝐈 𝐚𝐦 𝐡𝐚𝐩𝐩𝐢𝐥𝐲 𝐭𝐚𝐤𝐞𝐧 𝐛𝐲 𝐦𝐲 𝐠𝐢𝐫𝐥𝐟𝐫𝐢𝐞𝐧𝐝.
 
-𝐆𝐞𝐧𝐝𝐞𝐫𝐟𝐥𝐮𝐢𝐝 + 𝐂𝐢𝐬𝐠𝐞𝐧𝐝𝐞𝐫 𝐟𝐞𝐦𝐚𝐥𝐞
+𝐆𝐞𝐧𝐝𝐞𝐫𝐟𝐥𝐮𝐢𝐝. he/him are preferred but feel free to go crazy with my pronouns !
 
 𝐁𝐢𝐬𝐞𝐱𝐮𝐚𝐥.
 
