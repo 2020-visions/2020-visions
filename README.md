@@ -12,7 +12,7 @@
 
 𝐆𝐞𝐧𝐝𝐞𝐫𝐟𝐥𝐮𝐢𝐝. he/him are preferred but feel free to go crazy with my pronouns !
 
-𝐁𝐢𝐬𝐞𝐱𝐮𝐚𝐥.
+𝐁𝐢𝐬𝐞𝐱𝐮𝐚𝐥 & Demisexual
 
 <p align="center">
 <img width="540" height="360" alt="image" src="https://github.com/user-attachments/assets/4ecdd6be-0a5c-4258-b89f-f3d7a85fc329" />
